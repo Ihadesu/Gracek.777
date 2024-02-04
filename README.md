@@ -1,2 +1,2 @@
 # Gracek.777
-Oglongli
+polska 
